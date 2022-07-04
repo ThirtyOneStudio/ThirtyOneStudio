@@ -1,4 +1,4 @@
-![31logo-dark-github-profile](https://user-images.githubusercontent.com/108611558/177035891-a4046cd3-951b-4480-83c2-eee01038aa6a.png)
+![31logo-dark-github-profile](https://user-images.githubusercontent.com/108611558/177221360-52fb2934-c262-44e6-99a3-c918be54b22f.png)
 
 # 👋 We are waiting for U!
-Contact [studio.thirtyone.official@gmail.com] if you want to join the team!
+Contact [sea.thirtyone.official@gmail.com] if you want to join the team!
